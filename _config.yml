@@ -17,8 +17,8 @@ title: du savoir
 description: >- # this means to ignore newlines until "baseurl:"
   à la sagesse
 baseurl: "/" # the subpath of your site, e.g. /blog
-url: "https://ayukaryana.github.io" # the base hostname & protocol for your site, e.g. http://example.com
-github_username:  ayukaryana
+url: "https://laviediu.github.io" # the base hostname & protocol for your site, e.g. http://example.com
+github_username:  laviediu
 
 # Build settings
 markdown: kramdown
@@ -43,9 +43,4 @@ paginate_path: "/page/:num/"
 hide_credits: true
 hide_search: true
 future: true
-
-collections:
-  selection:
-    output: true
-    permalink: /:collection/:categories:output_ext
 
