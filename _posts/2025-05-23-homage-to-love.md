@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "an homage to "love""
+title: "an homage to love?"
 date: 2025-05-23
 author: "Maryam Medina"
 categories: literature
@@ -24,7 +24,6 @@ an idealization of a person <br>
 that, me too was idealized and i fiercely am against it<br>
 i ask myself again, and again<br>
 ~~do you need love?~~<br>
-strike that, false question<br>
 do you *feel* love?<br>
 <br>
 love?<br>
