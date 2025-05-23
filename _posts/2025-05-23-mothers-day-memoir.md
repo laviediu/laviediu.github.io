@@ -7,7 +7,7 @@ categories: literature
 ---
 
 her two feet crossed oceans<br>
-her two hands drove boat against Pacific<br>
+her two hands drove a boat against Pacific<br>
 her mind is travelling through six dimensions<br>
 her heart is beating loud as Chopin's classic<br>
 <br>
