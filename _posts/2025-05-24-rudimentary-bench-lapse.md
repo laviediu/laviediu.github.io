@@ -19,15 +19,15 @@ I have no interest in taking this any longer as my sleep time will be compromise
 > I wonder why the culture becomes new religion accusing the truth,<br>
 > and I wonder how many more will stray with it.<br>
 > I wonder why feminism is associated with man-haters,<br>
-> when most of them are also lovers of men,
-> perhaps the comments are thrown by terrible men,
-> that I hope the population isn't growing exponentially faster.
-> I wonder why a feminist is associated with bad mothers.
-> I would call my mom a feminist,
-> for empowering other women, or
-> both genders for that matter.
-> A woman who is the best mother one could ask for.
-> I wonder if I could live up to her legacy.
+> when most of them are also lovers of men,<br>
+> perhaps the comments are thrown by terrible men,<br>
+> that I hope the population isn't growing exponentially faster.<br>
+> I wonder why a feminist is associated with bad mothers.<br>
+> I would call my mom a feminist,<br>
+> for empowering other women, or<br>
+> both genders for that matter.<br>
+> A woman who is the best mother one could ask for.<br>
+> I wonder if I could live up to her legacy.<br>
 <br>
 
 I sincerely think Thoreau is helping me with mindset shifting, though I still loudly laugh every time he hits too close to society's failure. Attaboy. I am taking myself home to a bed where I am looking forward to some weird dreams I have about old acquaintances or strangers I won't remember.
