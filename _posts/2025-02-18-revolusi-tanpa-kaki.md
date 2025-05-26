@@ -3,7 +3,7 @@ layout: post
 title: "Revolusi tanpa kaki"
 date: 2025-02-18
 author: "Maryam Medina"
-categories: literature
+categories: poetry
 ---
 
 Singa kecil datang, tertatih-tatih kakinya. <br>
@@ -23,4 +23,4 @@ Hilang kakinya, berlari sekuat tenaga. <br>
 <br>
 Singa-singa kecil temannya sekarang punya rumah. <br>
 Singa kecil hilang, jatuh ke jurang. <br>
-Dia tersenyum, hilang kakinya telah mengamankan mikro semesta.
+Dia tersenyum, hilang kakinya telah mengamankan mikro semesta.<br>

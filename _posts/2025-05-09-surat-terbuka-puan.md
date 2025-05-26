@@ -3,7 +3,7 @@ layout: post
 title: "surat terbuka sang puan (classic English version)"
 date: 2025-05-09
 author: "Maryam Medina, translated and classic-ed by ChatGPT"
-categories: literature
+categories: poetry
 ---
 
 > “My lady, wilt thou be mine?”<br>
@@ -30,4 +30,5 @@ Still he wandered, round and round, calling her out within the walls they once s
 
 > “My lady, where hast thou gone? Why leavest thou me so alone?”
 
+<br>
 But the floor gave no reply, though the soil beneath was soft and newly turned. There lay the one he sought, buried not by earth, but by the weight of giving.

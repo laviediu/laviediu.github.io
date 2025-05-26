@@ -3,7 +3,7 @@ layout: post
 title: "Merah dan Putih"
 date: 2025-02-18
 author: "Maryam Medina"
-categories: literature
+categories: poetry
 ---
 
 Merah <br>

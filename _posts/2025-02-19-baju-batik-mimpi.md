@@ -3,7 +3,7 @@ layout: post
 title: "Baju Batik Mimpi"
 date: 2025-02-19
 author: "Maryam Medina"
-categories: literature
+categories: poetry
 ---
 
 Usai syair tentang cinta, tak lagi. <br>
@@ -18,8 +18,6 @@ cinta juga pilihan rasional. <br>
 Cinta mengenal hati, jiwa, pikiran. <br>
 <br>
 Baju batik, jaket warna-warni, perangkat jemala, <br>
-lesung pipi, <br>
-teh hijau, <br>
 mesin pencari, pesan elektronik, <br>
 ulang tahun, kabar gembira, selamat tinggal. <br>
 Satu meter, satu kilometer, enam ribu kilometer, delapan ribu kilometer, sepuluh ribu lima ratus kilometer.<br>
@@ -38,4 +36,4 @@ Dunia yang berbeda, <br>
 gula jawa menjadi gula pasir, <br>
 nasi telah menjadi bubur. <br>
 <br>
-Bahagia, satu kata untukmu, teruslah berbahagia.
+Bahagia, satu kata untukmu, teruslah berbahagia.<br>

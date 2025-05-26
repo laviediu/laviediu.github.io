@@ -3,7 +3,7 @@ layout: post
 title: "surat terbuka sang puan"
 date: 2025-05-05
 author: "Maryam Medina"
-categories: literature
+categories: poetry
 ---
 
 > "Tuan putri, maukah kau menjadi milikku?"<br>

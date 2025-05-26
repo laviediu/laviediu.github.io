@@ -3,7 +3,41 @@ layout: post
 title: "Raja mulut busuk"
 date: 2025-02-16
 author: "Maryam Medina"
-categories: literature
+categories: poetry
 ---
 
-Dia berkata, “aku benci, tak sudi”. Nampaknya putus asa, atau ucapan mulutnya diaminkan begitu saja oleh malaikat. “Untuk apa aku memberi, aku tak diberi”, teriaknya lantang di hadapan jelata tua muda sejuta seraya melenggokkan jubah emasnya, duduk di takhta perak layaknya raja. Busuk, busuk sekali baunya, tak seperti kilauan takhtanya. Jelata gaduh, darah tumpah, sang pemilik takhta diam saja, sembari menggonggong kesana kemari, “sudah, aku bukan sang raja”, tak sadar takhtanya telah naik ke nirwana, tak sadar bahwa jelata tidak bisa menggulingkannya. Hati kecil, pikiran sempit, mata buta. Sang raja bermuka jelata turun, menjadi jelata. Kosong takhta. Mati semua. Hitam darah di sepanjang karpet merah. Tak ada lagi raja, tak ada pula jelata. Bayi bertanya, “hal keji apa yang dilakukan raja?”.
+Dia berkata, <br>
+“aku benci, tak sudi”. <br>
+Nampaknya putus asa, <br>
+atau ucapan mulutnya <br>
+diaminkan begitu saja oleh malaikat. <br>
+<br>
+“Untuk apa aku memberi, aku tak diberi”, <br>
+teriaknya lantang <br>
+di hadapan jelata tua muda sejuta <br>
+seraya melenggokkan jubah emasnya, <br>
+duduk di takhta perak layaknya raja. <br>
+<br>
+Busuk, <br>
+busuk sekali baunya, <br>
+tak seperti kilauan takhtanya. <br>
+<br>
+Jelata gaduh, <br>
+darah tumpah, <br>
+sang pemilik takhta diam saja, <br>
+sembari menggonggong kesana kemari, <br>
+“sudah, aku bukan sang raja”, <br>
+tak sadar takhtanya telah naik ke nirwana, <br>
+tak sadar bahwa jelata tidak bisa menggulingkannya. <br>
+<br>
+Hati kecil, <br>
+pikiran sempit, <br>
+mata buta. <br>
+<br>
+Sang raja bermuka jelata turun, <br>
+menjadi jelata. <br>
+Kosong takhta. <br>
+Mati semua. <br>
+Hitam darah di sepanjang karpet merah. <br>
+Tak ada lagi raja, tak ada pula jelata. <br>
+Bayi bertanya, “hal keji apa yang dilakukan raja?”.<br>

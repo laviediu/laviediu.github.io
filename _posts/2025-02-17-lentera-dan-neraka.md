@@ -3,7 +3,36 @@ layout: post
 title: "lentera dan neraka"
 author: "Maryam Medina"
 date: 2025-02-16
-categories: literature
+categories: poetry
 ---
 
-Dunia rimba. Dunia jahanam. Dunia kebun suci. Dunia ilahi. Dia menatap setiap mata, mata-mata itu tertata. Terpancar cahaya, pula kegelapan. Terpancar remang-remang, hanya mengikuti lentera utama, tak tahu jalan pulang. Dia berdoa, harap dan kutukan. “Oh dunia, ketenangan itu sudah ada”, katanya. Ia lalu pulang. Ke rumah tanpa atap. Ke rumah tanpa jendela. Ke rumah tanpa kursi dan meja. Ditutup pintu rumahnya, bersungkur ia jadinya. Jatuh, banjir, tenggelam rumahnya. Ia terdiam, berdoa layaknya Nabi Musa, menunggu pertolongan Tuhan datang.
+Dunia rimba. <br>
+Dunia jahanam. <br>
+Dunia kebun suci. <br>
+Dunia ilahi. <br>
+<br>
+Dia menatap setiap mata, <br>
+mata-mata itu tertata. <br>
+Terpancar cahaya, pula kegelapan. <br>
+Terpancar remang-remang, <br>
+hanya mengikuti lentera utama, <br>
+tak tahu jalan pulang. <br>
+<br>
+Dia berdoa, <br>
+harap dan kutukan. <br>
+“Oh dunia, ketenangan itu sudah ada”, <br>
+katanya. <br>
+<br>
+Ia lalu pulang. <br>
+Ke rumah tanpa atap. <br> 
+Ke rumah tanpa jendela. <br>
+Ke rumah tanpa kursi dan meja. <br>
+Ditutup pintu rumahnya, <br>
+bersungkur ia jadinya. <br>
+Jatuh, <br>
+banjir, <br>
+tenggelam rumahnya. <br>
+<br>
+Ia terdiam, <br>
+berdoa layaknya Nabi Musa, <br>
+menunggu pertolongan Tuhan datang.<br>
