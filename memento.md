@@ -11,3 +11,6 @@ author: "Maryam Medina"
 [rudimentary bench lapse](https://laviediu.github.io/memento/2025/05/24/rudimentary-bench-lapse.html)
 <br>
 <br>
+[new old home](https://laviediu.github.io/memento/2025/05/29/new-old-home.html)
+<br>
+<br>
