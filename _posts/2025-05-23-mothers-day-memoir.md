@@ -3,7 +3,7 @@ layout: post
 title: "mother's day memoir"
 date: 2025-05-23
 author: "Maryam Medina"
-categories: poetry
+categories: poem
 ---
 
 her two feet crossed oceans<br>

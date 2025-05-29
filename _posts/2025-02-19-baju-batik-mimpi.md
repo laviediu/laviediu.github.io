@@ -3,7 +3,7 @@ layout: post
 title: "Baju Batik Mimpi"
 date: 2025-02-19
 author: "Maryam Medina"
-categories: poetry
+categories: poem
 ---
 
 Usai syair tentang cinta, tak lagi. <br>

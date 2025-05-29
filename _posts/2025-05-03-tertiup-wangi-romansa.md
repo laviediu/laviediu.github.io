@@ -3,7 +3,7 @@ layout: post
 title: "tertiup wangi romansa"
 date: 2025-05-03
 author: "Maryam Medina, translated and classic-ed by ChatGPT"
-categories: poetry
+categories: poem
 ---
 
 When I do love, I love entire—<br>

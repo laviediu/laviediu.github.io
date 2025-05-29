@@ -3,7 +3,7 @@ layout: post
 title: "Revolusi tanpa kaki"
 date: 2025-02-18
 author: "Maryam Medina"
-categories: poetry
+categories: poem
 ---
 
 Singa kecil datang, tertatih-tatih kakinya. <br>

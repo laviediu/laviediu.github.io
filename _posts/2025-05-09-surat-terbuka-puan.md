@@ -3,7 +3,7 @@ layout: post
 title: "surat terbuka sang puan (English ver.)"
 date: 2025-05-09
 author: "Maryam Medina, translated and classic-ed by ChatGPT"
-categories: poetry
+categories: poem
 ---
 
 > “My lady, wilt thou be mine?”<br>

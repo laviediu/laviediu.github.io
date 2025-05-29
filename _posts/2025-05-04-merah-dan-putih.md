@@ -3,7 +3,7 @@ layout: post
 title: "Merah dan Putih (English ver.)"
 date: 2025-05-04
 author: "Maryam Medina, translated by ChatGPT"
-categories: poetry
+categories: poem
 ---
 
 Red symbolizes courage, dynamism, leadership, and confidence, while <br>

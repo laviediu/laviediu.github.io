@@ -3,7 +3,7 @@ layout: post
 title: "admiral black star"
 date: 2025-05-02
 author: "Maryam Medina"
-categories: poetry
+categories: poem
 ---
 
 Sunny was my perfect place.<br>

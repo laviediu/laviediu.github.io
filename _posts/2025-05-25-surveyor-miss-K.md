@@ -3,7 +3,7 @@ layout: post
 title: "surveyor miss K"
 date: 2025-05-25
 author: "Maryam Medina"
-categories: poetry
+categories: poem
 ---
 
 
