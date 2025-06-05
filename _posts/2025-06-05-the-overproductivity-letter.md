@@ -15,13 +15,13 @@ I began a new habit formation several weeks ago, in an attempt to solve the guil
 I was in a state of extreme boredom. Think of the moment when you listen to a song so much that it begins to sound bad, like excruciatingly bad. At this point, *all* shows seem superficial and have no entertainment factors anymore. I began to look at my book shelf again, reading the books I haven’t finished, or buying new books to read--without feeling guilty. I started to go out, of course after a long weather debate with myself, simply to notice my surroundings and *feel* the nature. And. It. Has. Been. Life. Changing.
 <br>
 <br>
-I am a type of person who plans a whole week in advance, most of the time, except during holiday break. Presumably, if the mentioned new habit formation is effective, I would also plan my holiday break. Haha. My typical week usually consists of two to three major activities in a day--mostly my PhD experiments, with "rest" or "hangout with friends" description during the weekend. Lately, I noticed a new dynamics with three to *six* activities daily. What do I feel? Utterly satisfied. I hummed brightly at the end of each day, not that I didn't normally do humming, it just feels *extremely* satisfying.
+I am a type of person who plans a whole week in advance, most of the time, except during holiday breaks. Presumably, if the mentioned new habit formation is effective, I would also plan my holiday break. Haha. My typical week usually consists of two to three major activities in a day---mostly my PhD experiments, with "rest" or "hangout with friends" description during the weekend. Lately, I noticed a new dynamics with three to *six* activities daily. What do I feel? Utterly satisfied. I hummed brightly at the end of each day, not that I didn't normally do humming, it just feels *extremely* satisfying.
 <br>
 <br>
 This should be enough for a presenting argument. Remember, I welcome any oppositions, but please keep it for yourself. 
 <br>
 <br>
-Ah also, I did re-design this whole website during my "new habit formation experiment"--writing several poems, some that I am proud of, and some others that don't require any explanations whatsoever. By the way, I also landed a new opportunity, partly thanks to this experiment.
+Ah also, I did re-design this whole website during my "new habit formation experiment"---writing several poems, some that I am proud of, and some others that don't require any explanations whatsoever. By the way, I also landed a new opportunity, partly thanks to this experiment.
 <br>
 <br>
 I shall excuse myself. Au revoir!
