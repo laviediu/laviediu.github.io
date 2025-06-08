@@ -13,6 +13,7 @@ author: Maryam Medina
 <br>
 
 ### Miscellaneous
+<br>
 [new old home](https://laviediu.github.io/memento/2025/05/29/new-old-home.html)
 <br>
 <br>
