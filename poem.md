@@ -41,6 +41,9 @@ author: "Maryam Medina"
 [admiral black star](https://laviediu.github.io/poem/2025/05/02/admiral-black-star.html)
 <br>
 <br>
+[untitled 330](https://laviediu.github.io/poem/2025/06/08/untitled-330.html)
+<br>
+<br>
 [tertiup wangi romansa](https://laviediu.github.io/poem/2025/05/03/tertiup-wangi-romansa.html)
 <br>
 <br>
