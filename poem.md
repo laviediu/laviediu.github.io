@@ -29,6 +29,9 @@ author: "Maryam Medina"
 
 ### Miscellaneous
 <br>
+[tragically beautiful world](https://laviediu.github.io/poem/2025/06/10/tragically-beautiful-world.html)
+<br>
+<br>
 [a sinner's qualm](https://laviediu.github.io/poem/2025/05/15/a-sinner-qualm.html)
 <br>
 <br>
