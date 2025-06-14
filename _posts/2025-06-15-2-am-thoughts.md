@@ -1,12 +1,12 @@
 ---
 layout: post
 title: "2 am thoughts"
-date: 2025-06-14
+date: 2025-06-15
 author: "Maryam Medina"
 categories: memento
 ---
 
-This one is going to be super raw, I like to see blood on my plates. It is half past one in the morning. I just hung up a call with my friends, the first call was startup discussion, the second was girl thing-y I love. I kept putting off something I wanted to do and now I am doing it. I didn't expect that I would be this heartbroken, slow-burn-ly, while reading a letter. A letter that probably waited for almost 5 years. A closore I didn't know I needed, from my side, as well. My battery is running low but I left my charger at the meeting room, because guess who had part time job at the university today. <br>
+This one is going to be super raw, I like to see blood on my plates. It is half past one in the morning. I just hung up a call with my friends, the first call was startup discussion, the second was girl thing-y I love. I kept putting off something I wanted to do and now I am doing it. I didn't expect that I would be this heartbroken, slow-burn-ly, while reading a letter. A letter that probably waited for almost 5 years. A closure I didn't know I needed, from my side, as well. My battery is running low but I left my charger at the meeting room, because guess who had part time job at the university today. <br>
 <br>
 Yet, I think God has given me numerous, yes *that* much, closures I desperately needed this year. From me cursing someone who made me cry *in the middle of* experiments---I don't curse at people! And I still hate you for treating me like that, letting go the one I adore---so much, to being *brutally* honest to someone I've always felt safe with. Like Taylor said,<br>
 <br>
