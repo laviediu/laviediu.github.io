@@ -20,3 +20,6 @@ author: Maryam Medina
 [Time Swing Park](https://laviediu.github.io/memento/2025/05/05/time-swing-park.html)
 <br>
 <br>
+[2 am thoughts](https://laviediu.github.io/memento/2025/06/15/2-am-thoughts.html)
+<br>
+<br>
