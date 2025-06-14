@@ -10,9 +10,9 @@ This one is going to be super raw, I like to see blood on my plates. It is half 
 <br>
 Yet, I think God has given me numerous, yes *that* much, closures I desperately needed this year. From me cursing someone who made me cry *in the middle of* experiments---I don't curse at people! And I still hate you for treating me like that, letting go the one I adore---so much, to being *brutally* honest to someone I've always felt safe with. Like Taylor said,<br>
 <br>
-*I cried a lot but I am so productive, it's an art*<br>
+*"I cry a lot but I am so productive, it's an art"*<br>
 <br>
-*you know you're good when you can even do it with a broken heart*<br>
+*"you know you're good when you can even do it with a broken heart"*<br>
 <br>
 So this is what it takes to be 25 (read: almost 30); heartbreak anniversaries, trauma recognitions, covering wounds with smiles. I am super excited to start my new job next week, *whilst* having my heart wrenched again and again. Honestly, I was so done with all these and desperately asked God to let me fall so bad that I could understand what is going on. God answered that, and now I am the one kneeling---both for feeling grateful and finally understanding the tragedy. What a breakthrough you smart gal!<br>
 <br>
