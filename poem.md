@@ -47,6 +47,9 @@ author: "Maryam Medina"
 [admiral black star](https://laviediu.github.io/poem/2025/05/02/admiral-black-star.html)
 <br>
 <br>
+[let this bleeds](https://laviediu.github.io/poem/2025/06/15/let-this-bleeds.html)
+<br>
+<br>
 [untitled 330](https://laviediu.github.io/poem/2025/06/08/untitled-330.html)
 <br>
 <br>
