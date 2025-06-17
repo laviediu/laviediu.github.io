@@ -53,7 +53,7 @@ author: "Maryam Medina"
 [let this bleeds](https://laviediu.github.io/poem/2025/06/15/let-this-bleeds.html)
 <br>
 <br>
-[untitled 843](https://laviediu.github.io/poem/2025/06/17/untitled-843.html)
+[hujan dalam kegelapan](https://laviediu.github.io/poem/2025/06/17/hujan-dalam-kegelapan.html)
 <br>
 <br>
 [untitled 330](https://laviediu.github.io/poem/2025/06/08/untitled-330.html)
