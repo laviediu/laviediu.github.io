@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "untitled 843"
+title: "hujan dalam kegelapan"
 date: 2025-06-17
 author: "Maryam Medina"
 categories: poem
