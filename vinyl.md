@@ -32,7 +32,7 @@ A favorite collection of poetic vinyl
 [*Una Mattina*](https://youtu.be/94-PAIMDhaQ?si=jDxm88wacDzL6gz5) by Ludovico Einaudi.
 <br>
 <br>
-[*Flightless Bird*](https://youtu.be/8Ucm052oytM?si=BFF0KhcK1MKQN7Aw) by by Jolé.
+[*Flightless Bird*](https://youtu.be/8Ucm052oytM?si=BFF0KhcK1MKQN7Aw) by Jolé.
 <br>
 <br>
 [*Heartbeat*](https://youtu.be/pmBeSRi7eu0?si=P4vOJaoLmmkuB8_0) by Alice Boman.
