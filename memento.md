@@ -20,3 +20,6 @@ author: Maryam Medina
 [Time Swing Park](https://laviediu.github.io/memento/2025/05/05/time-swing-park.html)
 <br>
 <br>
+[Letter to My Younger Self](https://laviediu.github.io/memento/2025/06/20/letter-to-my-younger-self.html)
+<br>
+<br>
