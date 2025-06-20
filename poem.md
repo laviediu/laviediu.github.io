@@ -29,7 +29,7 @@ author: "Maryam Medina"
 
 ### Miscellaneous
 <br>
-[to the broken ones](https://laviediu.github.io/poem/2025/06/14/to-the-broken-ones.html)
+[Wingless Eulogy](https://laviediu.github.io/poem/2025/06/14/wingless-eulogy.html)
 <br>
 <br>
 [tragically beautiful world](https://laviediu.github.io/poem/2025/06/10/tragically-beautiful-world.html)

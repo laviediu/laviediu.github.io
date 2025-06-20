@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "to the broken ones"
+title: "Wingless Eulogy"
 date: 2025-06-14
 author: "Maryam Medina"
 categories: poem
