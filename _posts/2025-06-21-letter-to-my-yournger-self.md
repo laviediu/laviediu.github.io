@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Letter to My Younger Self"
-date: 2025-06-20
+date: 2025-06-21
 author: "Maryam Medina"
 categories: memento
 ---
