@@ -41,6 +41,9 @@ author: "Maryam Medina"
 [lentera dan neraka](https://laviediu.github.io/poem/2025/02/16/lentera-dan-neraka.html)
 <br>
 <br>
+[hujan dalam kegelapan](https://laviediu.github.io/poem/2025/06/17/hujan-dalam-kegelapan.html)
+<br>
+<br>
 
 ### Romance
 <br>
@@ -48,23 +51,5 @@ author: "Maryam Medina"
 <br>
 <br>
 [tertiup wangi romansa](https://laviediu.github.io/poem/2025/05/03/tertiup-wangi-romansa.html)
-<br>
-<br>
-[let this bleeds](https://laviediu.github.io/poem/2025/06/15/let-this-bleeds.html)
-<br>
-<br>
-[hujan dalam kegelapan](https://laviediu.github.io/poem/2025/06/17/hujan-dalam-kegelapan.html)
-<br>
-<br>
-[untitled 330](https://laviediu.github.io/poem/2025/06/08/untitled-330.html)
-<br>
-<br>
-[take my hand](https://laviediu.github.io/poem/2025/06/02/take-my-hand.html)
-<br>
-<br>
-[surveyor miss K](https://laviediu.github.io/poem/2025/05/25/surveyor-miss-K.html)
-<br>
-<br>
-[Baju Batik Mimpi](https://laviediu.github.io/poem/2025/02/19/baju-batik-mimpi.html)
 <br>
 <br>
