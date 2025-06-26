@@ -29,6 +29,9 @@ author: "Maryam Medina"
 
 ### Miscellaneous
 <br>
+[my tokyo](https://laviediu.github.io/poem/2025/06/26/my-tokyo.html)
+<br>
+<br>
 [Wingless Eulogy](https://laviediu.github.io/poem/2025/06/14/wingless-eulogy.html)
 <br>
 <br>

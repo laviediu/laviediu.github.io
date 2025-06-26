@@ -14,6 +14,9 @@ A favorite collection of poetic vinyl
 [*Yang Patah Tumbuh, Yang Hilang Berganti*](https://youtube.com/playlist?list=OLAK5uy_lfPlSGfD-nHHSF8nSaS5ugpbVnuXR23DY&si=MVfnosA-uZ2RdPu7) album by Banda Neira.
 <br>
 <br>
+[*Rasa dan Karsa*](https://youtu.be/lLfni1MfGws?si=fsj0QKXTs5eHhb6t) by Figura Renata.
+<br>
+<br>
 [*Forget Your Plans*](https://youtu.be/7HWCawu5J6s?si=zQd_JoB5TcRn57r0) album by Adhitia Sofyan.
 <br>
 <br>
