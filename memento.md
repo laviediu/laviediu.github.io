@@ -23,3 +23,6 @@ author: Maryam Medina
 [Letter to My Younger Self](https://laviediu.github.io/memento/2025/06/21/letter-to-my-younger-self.html)
 <br>
 <br>
+[no time to grief](https://laviediu.github.io/memento/2025/06/29/no-time-to-grief.html)
+<br>
+<br>
