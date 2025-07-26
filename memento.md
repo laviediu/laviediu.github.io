@@ -14,6 +14,9 @@ author: Maryam Medina
 
 ### Miscellaneous
 <br>
+[Summer 2025: a memoir](https://laviediu.github.io/memento/2025/07/25/summer-2025-memoir.html)
+<br>
+<br>
 [new old home](https://laviediu.github.io/memento/2025/05/29/new-old-home.html)
 <br>
 <br>
