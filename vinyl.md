@@ -23,7 +23,7 @@ A favorite collection of poetic vinyl
 [*Love Poem*](https://youtu.be/iOKRYIMhaDk?si=hCoKohBTKr2uDVFl) by IU.
 <br>
 <br>
-[In A Week](https://youtu.be/VcNQRiMNDDw?si=8p95eBpOlKuRjTs7) by Hozier.
+[*In A Week*](https://youtu.be/VcNQRiMNDDw?si=8p95eBpOlKuRjTs7) by Hozier.
 <br>
 <br>
 [*Bengawan Solo*](https://youtu.be/WjRDxMVB4GI?si=ooo-q9by9GcBaw1t) by Gesang.
