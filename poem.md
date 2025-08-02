@@ -53,7 +53,7 @@ author: "Maryam Medina"
 [admiral black star](https://laviediu.github.io/poem/2025/05/02/admiral-black-star.html)
 <br>
 <br>
-[gypsophila garden](https://laviediu.github.io/poem/2025/08/03/gypsophila-garden.html)
+[gypsophila garden](https://laviediu.github.io/poem/2025/08/02/gypsophila-garden.html)
 <br>
 <br>
 [tertiup wangi romansa](https://laviediu.github.io/poem/2025/05/03/tertiup-wangi-romansa.html)
