@@ -4,7 +4,7 @@ title: Vinyl
 author: "Maryam Medina"
 ---
 
-A favorite collection of poetic vinyl
+A favorite collection of poetic vinyl.
 <br>
 <br>
 <br>

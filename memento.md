@@ -4,6 +4,9 @@ title: Memento
 author: Maryam Medina
 ---
 
+Memories that I captured in words, rather than pictures.<br>
+<br>
+<br>
 [Winning](https://laviediu.github.io/memento/2025/08/23/winning.html)
 <br>
 <br>
@@ -11,7 +14,6 @@ author: Maryam Medina
 <br>
 <br>
 [rudimentary bench lapse](https://laviediu.github.io/memento/2025/05/24/rudimentary-bench-lapse.html)
-<br>
 <br>
 <br>
 [new old home](https://laviediu.github.io/memento/2025/05/29/new-old-home.html)
