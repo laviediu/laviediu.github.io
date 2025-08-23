@@ -4,7 +4,9 @@ title: Poem
 author: "Maryam Medina"
 ---
 
-### Society
+
+I can be very poetic, sometimes. Enjoy!<br>
+<br>
 [surat terbuka sang puan](https://laviediu.github.io/poem/2025/05/05/surat-terbuka-puan.html)
 <br>
 <br>
@@ -26,9 +28,6 @@ author: "Maryam Medina"
 [Raja mulut busuk](https://laviediu.github.io/poem/2025/02/16/raja-mulut-busuk.html)
 <br>
 <br>
-
-### Miscellaneous
-<br>
 [my tokyo](https://laviediu.github.io/poem/2025/06/26/my-tokyo.html)
 <br>
 <br>
@@ -46,9 +45,6 @@ author: "Maryam Medina"
 <br>
 [hujan dalam kegelapan](https://laviediu.github.io/poem/2025/06/17/hujan-dalam-kegelapan.html)
 <br>
-<br>
-
-### Romance
 <br>
 [admiral black star](https://laviediu.github.io/poem/2025/05/02/admiral-black-star.html)
 <br>

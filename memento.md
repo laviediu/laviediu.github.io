@@ -4,15 +4,15 @@ title: Memento
 author: Maryam Medina
 ---
 
-### Society
+[Winning](https://laviediu.github.io/memento/2025/08/23/winning.html)
+<br>
+<br>
 [the over-productivity letter](https://laviediu.github.io/memento/2025/06/05/the-overproductivity-letter.html)
 <br>
 <br>
 [rudimentary bench lapse](https://laviediu.github.io/memento/2025/05/24/rudimentary-bench-lapse.html)
 <br>
 <br>
-
-### Miscellaneous
 <br>
 [new old home](https://laviediu.github.io/memento/2025/05/29/new-old-home.html)
 <br>
