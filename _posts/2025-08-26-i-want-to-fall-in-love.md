@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "but, mom, i do want to fall in love, again"
+title: "but, mom, *i do* want to fall in love, again"
 date: 2025-08-26
 author: "Maryam Medina"
 categories: memento
