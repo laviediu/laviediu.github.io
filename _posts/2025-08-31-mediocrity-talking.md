@@ -20,4 +20,4 @@ What should *I* do? <br>
 Starting small feels meaningless, <br>
 starting big seems drowning in the dirty flow.<br>
 <br>
-Ugh, it is a cycle of never ending misery. No, Taylor, this is *not* me trying, *this is me cursing*.
+Ugh, it is a cycle of never ending misery. No, Taylor, this is ~~not~~ me trying, *this is me cursing*.
