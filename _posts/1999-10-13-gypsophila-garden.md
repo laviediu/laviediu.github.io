@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "gypsophila garden"
-date: 2025-08-02
+date: 1999-10-13
 author: "Maryam Medina"
 categories: poem
 ---

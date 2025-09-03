@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "tertiup wangi romansa"
-date: 2025-05-03
+date: 1999-10-13
 author: "Maryam Medina, translated and classic-ed by ChatGPT"
 categories: poem
 ---

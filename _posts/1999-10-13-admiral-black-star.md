@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "admiral black star"
-date: 2025-05-02
+date: 1999-10-13
 author: "Maryam Medina"
 categories: poem
 ---
