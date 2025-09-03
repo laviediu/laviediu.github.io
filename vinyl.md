@@ -17,6 +17,12 @@ A favorite collection of poetic vinyl.
 [*Rasa dan Karsa*](https://youtu.be/lLfni1MfGws?si=fsj0QKXTs5eHhb6t) by Figura Renata.
 <br>
 <br>
+[*Supermarket Flowers*](https://youtu.be/bIB8EWqCPrQ?si=lSR1z1DBE0CUG2uF) by Ed Sheeran.
+<br>
+<br>
+[*Slipping Through My Fingers*](https://youtu.be/hRr7qRb-7k4?si=DQLF5MbN96lKHvRM) by ABBA.
+<br>
+<br>
 [*Forget Your Plans*](https://youtu.be/7HWCawu5J6s?si=zQd_JoB5TcRn57r0) album by Adhitia Sofyan.
 <br>
 <br>
