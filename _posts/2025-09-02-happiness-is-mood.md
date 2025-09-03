@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "happiness is a mood, not destination"
+title: "happiness is a mood, not a destination"
 date: 2025-09-02
 author: "Maryam Medina"
 categories: memento

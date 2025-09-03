@@ -22,9 +22,6 @@ Memories that I captured in words, rather than pictures.<br>
 [Time Swing Park](https://laviediu.github.io/memento/2025/05/05/time-swing-park.html)
 <br>
 <br>
-[Letter to My Younger Self](https://laviediu.github.io/memento/2025/06/21/letter-to-my-younger-self.html)
-<br>
-<br>
 [no time to grief](https://laviediu.github.io/memento/2025/06/29/no-time-to-grief.html)
 <br>
 <br>

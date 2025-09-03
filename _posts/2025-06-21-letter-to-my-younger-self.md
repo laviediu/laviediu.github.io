@@ -3,7 +3,7 @@ layout: post
 title: "Letter to My Younger Self"
 date: 2025-06-21
 author: "Maryam Medina"
-categories: memento
+categories: letter
 ---
 
 Hi, how are you? It is almost 12 am in Tokyo, I suppose you are already asleep now.
