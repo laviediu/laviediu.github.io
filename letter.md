@@ -13,3 +13,6 @@ Letters with no address.<br>
 [Mr. President, do you copy? over](https://laviediu.github.io/letter/2025/09/04/mr-president-do-you-copy.html)
 <br>
 <br>
+[hi, how are you?](https://laviediu.github.io/letter/2025/09/09/how-are-you.html)
+<br>
+<br>
