@@ -10,7 +10,7 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 <br>
 <br>
 <br>
-### bloody plate
+### Red Feast
 <br>
 <br>
 [surat terbuka sang puan](https://laviediu.github.io/poem/2025/05/05/surat-terbuka-puan.html)
