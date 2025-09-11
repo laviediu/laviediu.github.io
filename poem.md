@@ -74,3 +74,6 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [surveyor miss K](https://laviediu.github.io/poem/1999/10/13/surveyor-miss-k.html)
 <br>
 <br>
+[kindergarten and pups](https://laviediu.github.io/poem/1999/10/13/kindergarten-and-pups.html)
+<br>
+<br>
