@@ -71,7 +71,7 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [admiral black star](https://laviediu.github.io/poem/1999/10/13/admiral-black-star.html)
 <br>
 <br>
-[surveyor miss K](https://laviediu.github.io/poem/1999/10/13/surveyor-miss-k.html)
+[surveyor miss K](https://laviediu.github.io/poem/1999/10/13/miss-k.html)
 <br>
 <br>
 [kindergarten and pups](https://laviediu.github.io/poem/1999/10/13/kindergarten-and-pups.html)
