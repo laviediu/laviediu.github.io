@@ -18,7 +18,7 @@ My mind wanders to the deep dark sky<br>
 My hand seeks a page where your name was sewn<br>
 I demand a miracle, an answer,<br>
 a verse elaborating the dreams of your presence<br>
-It is I,
+It is I,<br>
 who am lost in your steady eyes<br>
 <br>
 The eyes I forgot,<br>
