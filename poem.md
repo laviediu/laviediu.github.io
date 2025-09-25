@@ -9,7 +9,6 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 <br>
 <br>
 <br>
-<br>
 ### Red Feast
 <br>
 <br>
@@ -57,6 +56,9 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [hujan dalam kegelapan](https://laviediu.github.io/poem/2025/06/17/hujan-dalam-kegelapan.html)
 <br>
 <br>
+[one day](https://laviediu.github.io/poem/2025/09/25/one-day.html)
+<br>
+<br>
 <br>
 <br>
 ### 1999
@@ -78,5 +80,8 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 <br>
 <br>
 [kindergarten and pups](https://laviediu.github.io/poem/1999/10/13/kindergarten-and-pups.html)
+<br>
+<br>
+[my last homage](https://laviediu.github.io/poem/1999/10/13/my-last-homage.html)
 <br>
 <br>
