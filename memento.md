@@ -4,7 +4,7 @@ title: Memento
 author: Maryam Medina
 ---
 
-Memories that I captured in words, rather than pictures.<br>
+Memories that I captured in words, rather than pictures. Well, a published diary.<br>
 <br>
 <br>
 [Winning](https://laviediu.github.io/memento/2025/08/23/winning.html)
