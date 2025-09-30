@@ -53,6 +53,9 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [tragically beautiful world](https://laviediu.github.io/poem/2025/06/10/tragically-beautiful-world.html)
 <br>
 <br>
+[teh melati dan apel](https://laviediu.github.io/poem/2025/09/28/teh-melati-dan-apel.html)
+<br>
+<br>
 [hujan dalam kegelapan](https://laviediu.github.io/poem/2025/06/17/hujan-dalam-kegelapan.html)
 <br>
 <br>

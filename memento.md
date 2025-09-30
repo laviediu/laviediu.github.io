@@ -25,3 +25,6 @@ Memories that I captured in words, rather than pictures.<br>
 [no time to grief](https://laviediu.github.io/memento/2025/06/29/no-time-to-grief.html)
 <br>
 <br>
+[reward prediction error](https://laviediu.github.io/memento/2025/09/30/reward-prediction-error.html)
+<br>
+<br>
