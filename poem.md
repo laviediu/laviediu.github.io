@@ -50,6 +50,9 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [Wingless Eulogy](https://laviediu.github.io/poem/2025/06/14/wingless-eulogy.html)
 <br>
 <br>
+[mati rasa](https://laviediu.github.io/poem/2025/10/04/mati-rasa.html)
+<br>
+<br>
 [tragically beautiful world](https://laviediu.github.io/poem/2025/06/10/tragically-beautiful-world.html)
 <br>
 <br>
