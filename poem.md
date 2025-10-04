@@ -91,3 +91,9 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [my last homage](https://laviediu.github.io/poem/1999/10/13/my-last-homage.html)
 <br>
 <br>
+[cOMplIcaTeD](https://laviediu.github.io/poem/1999/10/13/complicated.html)
+<br>
+<br>
+[Baju Batik Mimpi](https://laviediu.github.io/poem/1999/10/13/baju-batik-mimpi.html)
+<br>
+<br>
