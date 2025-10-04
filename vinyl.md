@@ -17,6 +17,9 @@ A favorite collection of poetic vinyl.
 [*Rasa dan Karsa*](https://youtu.be/lLfni1MfGws?si=fsj0QKXTs5eHhb6t) by Figura Renata.
 <br>
 <br>
+[*Manusia*](https://youtube.com/playlist?list=PLzgVPDDV8B8coULgS5rJYh2HW9dhtjc8b&si=CzzA0nVIGGMXBp7Y) album by Tulus.
+<br>
+<br>
 [*Supermarket Flowers*](https://youtu.be/bIB8EWqCPrQ?si=lSR1z1DBE0CUG2uF) by Ed Sheeran.
 <br>
 <br>
