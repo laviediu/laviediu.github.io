@@ -9,18 +9,26 @@ categories: memento
 
 The title sounds quite political I suppose, it is something I picked up upon reading *Autocracy, Inc.* by Anne Applebaum. It is crazy how much cheaper translated books in Gramedia is, compared to the original ones that they sell in Amazon. Though, I always try to find a loophole by purchasing secondhand books. I bought three books when I returned to Indonesia last week, one is a poem collection from M. Aan Mansur.
 <br>
+<br>
 I felt like I was stepping into different worlds, very quickly, one week I was in Seoul, one weekend hiking in Hakuba, another week in Indonesia then suddenly in Tokyo again. I met my parents very briefly in Yogyakarta, without going back to my hometown. I didn't realize how weird it was, until my arrival at Haneda when I rushed back home to cry my eyes out. *"I'm not sure I'll be back next Eid"*, I told Mom confidently. Yet, I found myself searching for cheap flights last night.
+<br>
 <br>
 *"Welcome back!"*, the manager said before the weekly meeting. Oh, if only he knows, I am not coming back, this is foreign. I have come to realize that this internship does light a spark in me. I love working there. In fact, sometimes I wonder if the environment is where I would truly belong. I understand myself more. In the past, I could never see myself working a corporate job, but this opportunity has truly shed lights on my career option I guess.
 <br>
+<br>
 I was sleeping next to Mom, with Dad laying on the hotel sofa that night, when I blurted out, *"Mom, Dad, I want to try something, please give your blessing to me"*. All my life, I never really tried something *brave* enough, an option that could be a very risky move. And perhaps, it is one of the reasons why I have never been brave enough to start a *relationship* with anyone, beside for more obvious reason of religious belief.
+<br>
 <br>
 I start talking with several people I know, those who could be a partner or collaborator, while trying to read people's reactions between the lines. I didn't realize until lately that I always see the good in people, like it turned out that maipulating me would be a piece of cake. Haha. It puts perspectives that I should be more careful. I know very well that humans are capable of doing super destructive things, but having an idea of it and actually practicing to understand it are significantly different.
 <br>
+<br>
 Lately I am hooked with *The Diplomat* series, it's got the thrill and never-ending international conflicts (also marriage complication) that just.. burn! Sometimes I got all frustrated with Kate Wyler but I understand where she was coming from, and I could relate to some of her ways of thinking. And with reading *Autocracy, Inc.*, the real juice is brought to the table, in real you-can-never-not-be-inflicted-by-politics kind of thing.
+<br>
 <br>
 And I was slapped, metaphorically, by my supervisor last week. Due to some political reasons, paperworks mostly. Ah, and as everybody knows, the new PM is close to the US now. And for a while, I felt bad for myself that I was very powerless and just.. naive. Oh I hate politics and its inevitable existence. This reminds me of a quote inscribed on the wall of a building at Titech, where it says that *science knows no country*. I doubt that very much. For reasons I can't explain, writing my opinion here could be harmful, hence let me just keep my mouth shut. This is a safe yapping platform for censored content, except for romance, which no one cares about :)
 <br>
+<br>
 Lately, perhaps because I am now entering my late twenties, I found myself considering *other things* when I plan my future. A lot of people were asking me, *"what is your plan after graduation?"*. I always go with the template awkward smile and *"I am still not sure hehe"*. When in fact I know very well I could never answer those questions weighing my preference. And knowing very well that those questions were asked by men. You see, women in my age have different priorities in life. I am a feminist who respects and supports other women's choices, and who *doesn't hate men*. Fluff those people who think that feminist are man-haters! Or those who curse women who love domestic roles. Every woman has their own choices period.
+<br>
 <br>
 You know where I am going with this, don't you? I understand very well lately that my dreams in life don't stop at what I have been pursuing for the past 20 years. I also dream of becoming a nurturer. I understand how hormones and biology play a major part in my decisionmaking abilities, but I began to not despise them. They are the very thing that shake hand with my peace. And thus, to answer the question honestly, yes, I do have a plan, beautifully crafted and secretly unshared, because their standard couldn't measure its vast dimensions.
