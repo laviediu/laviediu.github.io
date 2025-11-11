@@ -97,3 +97,6 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [Baju Batik Mimpi](https://laviediu.github.io/poem/1999/10/13/baju-batik-mimpi.html)
 <br>
 <br>
+[untuk Aji](https://laviediu.github.io/poem/2025/11/05/untuk-aji.html)
+<br>
+<br>

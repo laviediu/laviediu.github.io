@@ -31,3 +31,9 @@ Memories that I captured in words, rather than pictures. Well, a published diary
 [reward prediction error](https://laviediu.github.io/memento/2025/09/30/reward-prediction-error.html)
 <br>
 <br>
+[Wandel durch Handel](https://laviediu.github.io/memento/2025/11/09/wandel-durch-handel.html)
+<br>
+<br>
+[only child](https://laviediu.github.io/memento/2025/11/10/only-child.html)
+<br>
+<br>
