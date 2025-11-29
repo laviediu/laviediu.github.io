@@ -47,10 +47,10 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 ### 13
 <br>
 <br>
-[last breath](https://laviediu.github.io/poem/2025/11/29/last-breath.html)
-<br>
-<br>
 [Wingless Eulogy](https://laviediu.github.io/poem/2025/06/14/wingless-eulogy.html)
+<br>
+<br>
+[last breath](https://laviediu.github.io/poem/2025/11/29/last-breath.html)
 <br>
 <br>
 [mati rasa](https://laviediu.github.io/poem/2025/10/04/mati-rasa.html)
@@ -86,9 +86,6 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 <br>
 <br>
 [surveyor miss K](https://laviediu.github.io/poem/1999/10/13/miss-k.html)
-<br>
-<br>
-[kindergarten and pups](https://laviediu.github.io/poem/1999/10/13/kindergarten-and-pups.html)
 <br>
 <br>
 [my last homage](https://laviediu.github.io/poem/1999/10/13/my-last-homage.html)
