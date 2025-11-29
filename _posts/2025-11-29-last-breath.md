@@ -24,6 +24,6 @@ It does not shout, talk, nor whisper.<br>
 I run, my bare feet are bleeding.<br>
 The road is red, yet I keep my steps.<br>
 Flood of tears washes the red road, dragging my body to shore.<br>
-I am drown, the wave takes my soul to the burial ground.<br>
+I am drowned, the wave takes my soul to the burial ground.<br>
 Mother Earth hugs my darkened soul, and<br>
 God smiles that I am leaving them all behind.
