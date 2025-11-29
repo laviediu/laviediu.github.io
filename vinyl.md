@@ -4,7 +4,7 @@ title: Vinyl
 author: "Maryam Medina"
 ---
 
-A favorite collection of poetic vinyl.
+A favorite collection of melodies.
 <br>
 <br>
 <br>
@@ -24,6 +24,9 @@ A favorite collection of poetic vinyl.
 <br>
 <br>
 [*Slipping Through My Fingers*](https://youtu.be/hRr7qRb-7k4?si=DQLF5MbN96lKHvRM) by ABBA.
+<br>
+<br>
+[*Que Sera Sera*](https://music.youtube.com/watch?v=VcCCzKt6-Qs&si=0JARVlz57lyE9RrD) by Billianne.
 <br>
 <br>
 [*Forget Your Plans*](https://youtu.be/7HWCawu5J6s?si=zQd_JoB5TcRn57r0) album by Adhitia Sofyan.
@@ -54,5 +57,14 @@ A favorite collection of poetic vinyl.
 <br>
 <br>
 [*What A Wonderful World* x *Can't Help Falling in Love*](https://youtu.be/XBIYD3h1olY?si=TbphQSs5c1mnoVnt) mashup cover by Reneé Dominique.
+<br>
+<br>
+[*Only Child*](https://music.youtube.com/watch?v=ew-WZ9J7PTc&si=pah1Cd13FGeXfmV7) by Sasha Alex Sloan.
+<br>
+<br>
+[*Numb Little Bug*](https://music.youtube.com/watch?v=Mi5rkJUoqn0&si=Lm8_xa-d5iUnCs5g) by Em Beihold.
+<br>
+<br>
+[*Teenage Wasteland*](https://music.youtube.com/watch?v=rIbMbXjbW98&si=HNUFxzOtoeL6P862) by The Who.
 <br>
 <br>
