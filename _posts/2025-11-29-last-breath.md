@@ -19,7 +19,7 @@ warm and fuzzy,<br>
 it is gone.<br>
 <br>
 My tears run a river but my heart is hollow.<br>
-It does not whisper, talk, nor shout.<br>
+It does not shout, talk, nor whisper.<br>
 <br>
 I run, my bare feet are bleeding.<br>
 The road is red, yet I keep my steps.<br>
