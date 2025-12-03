@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "adult wasteland"
+title: "Adult Wasteland"
 date: 2025-12-03
 author: "Maryam Medina"
 categories: poem
@@ -35,7 +35,7 @@ track every expense,<br>
 getting annoyed by irresponsible politicians.<br>
 <br>
 This is not a poem, it is a wasteland.<br>
-I write because my head spills, my heart contains, my soul explodes.<br>
+I write because my heart contains, my head spills, my soul explodes.<br>
 I long and ache for something inexplicable.<br>
 They said life needs witness, someone to witness you,<br>
 I say words witness existence,<br>

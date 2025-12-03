@@ -53,6 +53,9 @@ I can be very poetic, sometimes. *Enjoy!*<br>
 [last breath](https://laviediu.github.io/poem/2025/11/29/last-breath.html)
 <br>
 <br>
+[Adult Wasteland](https://laviediu.github.io/poem/2025/12/03/adult-wasteland.html)
+<br>
+<br>
 [mati rasa](https://laviediu.github.io/poem/2025/10/04/mati-rasa.html)
 <br>
 <br>
