@@ -16,7 +16,7 @@ The door is open,<br>
 yet I expect no one to come and return.<br>
 <br>
 The pain lingers in my skin, it itches,<br>
-but scratching risks permanent damage.<br>
+but scratching risks permanent damages.<br>
 <br>
 This is a foreign language,<br>
 the one without dictionary to translate<br>
