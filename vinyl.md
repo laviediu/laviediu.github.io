@@ -8,6 +8,21 @@ A favorite collection of melodies.
 <br>
 <br>
 <br>
+[*Anchor*](https://music.youtube.com/watch?v=OmKAn8rNbKg&si=G2mcdAwWWUIicb4y) by Novo Amor.
+<br>
+<br>
+[*Ho Hey*](https://music.youtube.com/watch?v=SuZytYa71lk&si=rI3O6i6WfErGyTEv) by The Lumineers.
+<br>
+<br>
+[*It's Not Living (If It's Not With You)*](https://music.youtube.com/watch?v=3bVJFgvUZHg&si=ccwiqbX163tXth8x) by The 1975.
+<br>
+<br>
+[*All I Want*](https://music.youtube.com/watch?v=I6EHhz-fRGc&si=YyX9hEjYB97xRcv1) cover by Alexandra Porat.
+<br>
+<br>
+[*Kiss Me*](https://music.youtube.com/watch?v=K2tbQ_g2VbQ&si=ozDLq52DjxBZLIcq) by Sixpence None The Richer.
+<br>
+<br>
 [*Nuvole Bianche*](https://youtu.be/VUCI-1vIbUo?si=QoETIYO47a89GZQT) by Ludovico Einaudi.
 <br>
 <br>
