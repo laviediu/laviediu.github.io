@@ -7,6 +7,9 @@ author: Maryam Medina
 Memories that I captured in words, rather than pictures. Well, a published diary.<br>
 <br>
 <br>
+[a pen without darkness](https://laviediu.github.io/memento/2026/02/02/pen-without-darkness.html)
+<br>
+<br>
 [you are my people](https://laviediu.github.io/memento/2025/10/16/you-are-my-people.html)
 <br>
 <br>
