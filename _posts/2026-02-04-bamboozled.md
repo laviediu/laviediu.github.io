@@ -17,7 +17,7 @@ And there it was, a wedding announcement. "I knew it. Of course it is! Unbelieva
 <br>
 I texted my mom, "Do you remember that one time I cried in the kitchen because I told someone I liked him? He is already married. I'm sad, but I don't cry". She replied, with emojis (the one with a face full of love and the kissing face) she always use, "That's okay, honey, don't be sad. Believe that Allah prepares the best for you, don't lose your hope".<br>
 <br>
-Some people are lucky, they marry their first love, just like my parents. I'm not saying that I resent Allah's plan, but to be able to feel it and seal it forever through marriage, that's such a tremendous gift, the kind of rizq worth fighting for.<br>
+Some people are lucky, they marry their first love, just like my parents. I'm not saying that I resent Allah's plan, but to be able to feel it and seal it forever through marriage, that's such a tremendous rizq.<br>
 <br>
 And hey, even if you are my first love, I want to say that I'm genuinely happy for you, though I still hope you'll have Indonesian dads belly VERY SOON. Forgive me, yaa Rabb, I need the win. I know that someone is also waiting for me in the other end, and I'm not going to lose this hope just because you get to the start line first.<br>
 <br>
