@@ -7,9 +7,6 @@ author: Maryam Medina
 Memories that I captured in words, rather than pictures. Well, a published diary.<br>
 <br>
 <br>
-[a pen without darkness](https://laviediu.github.io/memento/2026/02/02/pen-without-darkness.html)
-<br>
-<br>
 [you are my people](https://laviediu.github.io/memento/2025/10/16/you-are-my-people.html)
 <br>
 <br>
@@ -23,9 +20,6 @@ Memories that I captured in words, rather than pictures. Well, a published diary
 <br>
 <br>
 [new old home](https://laviediu.github.io/memento/2025/05/29/new-old-home.html)
-<br>
-<br>
-[Time Swing Park](https://laviediu.github.io/memento/2025/05/05/time-swing-park.html)
 <br>
 <br>
 [no time to grief](https://laviediu.github.io/memento/2025/06/29/no-time-to-grief.html)
