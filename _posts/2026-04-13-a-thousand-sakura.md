@@ -16,7 +16,7 @@ I think I've cried three times today; during the afternoon prayer, during the ev
 <br>
 *"What if he lies to me"*<br>
 *"What if I hurt him"*<br>
-*"What if he can't find Him again*<br>
+*"What if he can't find Him again"*<br>
 <br>
 What if he can't see how much our journey has been numerous impossibilities. What if He's already showing all His signs, but he can't see how much He loves us. What if I'm forcing this to happen. What if he takes me for granted. What if I ask him for too much.<br>
 <br>
