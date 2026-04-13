@@ -10,7 +10,7 @@ categories: memento
 
 I just came back from the lab about an hour ago. I took my laundry and re-heated the meal I cooked this morning. It has been more than a month since I write, what an achievement! I always come back when my head is messy or whenever I'm feeling a lot. But I guess I'll go back more for when a moment needs to be exactly freezed.<br>
 <br>
-I just did what my best friend described as *aggresivity*. Not exactly accurate, but I understand where she comes from. I was looking for a clarity, a down-in-my-knee plead to myself to move forward.<br>
+I just did what my best friend described as *aggressivity*. Not exactly accurate, but I understand where she comes from. I was looking for a clarity, a down-in-my-knee plead to myself to move forward.<br>
 <br>
 I think I've cried three times today; during the afternoon prayer, during the evening prayer, and just now.<br>
 <br>
