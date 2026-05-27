@@ -8,21 +8,21 @@ categories: memento
 
 I may delete this post from the site, keeping it archived in my local folders, then realizing several years later that I wrote this. I tend to do that when I feel over-exposed to the world, it gives me an ick. I am sober, meaning that I am definitely not sleep-deprived nor unrelaxed. I spent half an hour sitting on a bench at the university under the moonlight, gazing at the stars while reading The Black Swan. Thus, this memento is written in a full state of sanity of the writer. But again, I might delete it from the public.<br>
 <br>
-*If love was ever enough, I would go to you,*
-*slowly, steadily, like* 
+*If love was ever enough, I would go to you,*<br>
+*slowly, steadily, like* <br>
 *how the leaves fall in autumn.* <br>
 <br>
-*If love was enough, I would let you* 
+*If love was enough, I would let you* <br>
 *to love me entirely, without waiting for years.*<br>
 <br>
-*If love was enough, I would let us*
+*If love was enough, I would let us*<br>
 *love, argue, then reconcile.*<br>
 <br>
-*If love was ever enough, I would write*
+*If love was ever enough, I would write*<br>
 *every single thing that made me* <br>
 *fall in love with you.* <br>
 <br>
-*If love was enough, I would never ask you*
+*If love was enough, I would never ask you*<br>
 *to let me go.* <br>
 <br>
 *If love was enough, I would hold your hand like* <br>
