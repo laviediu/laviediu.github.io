@@ -13,4 +13,4 @@ And why did I just find out about Acai when I was there, out of all places! It m
 <br>
 I've been listening to a lot of rock cover songs by Our Last Night, with almost full volume. I want to scream, that bad! I have *That's So True*, *Numb Little Bug*, *Man I need*, and *Anti-Hero*. I need to run again, desperately.<br>
 <br>
-Alright, I'm off to bed, but fluff him, fluff! I don't want to humanize him now, whatever, FLUFF!
+Alright, I'm off to bed, but fluff him, fluff! I don't want to humanize him now, I've been doing that, it's rage time now! TAKE THAT, TAKE HOW MUCH I COULD LOVE SOMEONE!!! FLUFF!!!
