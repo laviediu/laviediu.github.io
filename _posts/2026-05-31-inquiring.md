@@ -13,7 +13,7 @@ I was born Muslim. It was a culture. The rituals were habits I have been accusto
 <br>
 Being born Muslim is a privilege for some people, and I did realize it later. However, there was also a period when I wish I found this religion by myself. Later, I have come to a realization that choosing this religion or continuously practicing, after being presented with other arguments and experiencing life outside what it taught, means that I *found* it by myself. Because personally, it is insulting to be regarded as a lazy thinker, as blindly following something out of circumstances I was born into. And it would have meant that I am agreeing to what people generally see as an utter delusion.<br>
 <br>
-While rational thinking always holds true and indisputable, it is not the major part of how I see the world. Or I should say thinking from the root of everything, it is absurd to regard how I think as irrationality when I practice rational thinking daily for my PhD research. Although again, I develop "*gut*" feeling on several parameters I believe would increase the performance metrics, that would be intuitive thinking from past experiences, or rational thinking based on past evidence. Ah language is losing me. Rather than defending how I normally think, let's just reduce myself as an irrational thinker for the sake of easier discussion.<br>
+While rational thinking always holds true and indisputable, it is not the major part of how I see the world. Or I should say thinking from the root of everything, it is absurd to regard how I think as irrationality when I practice rational thinking daily for my PhD research. Although again, I develop *gut* feeling on several parameters I believe would increase the performance metrics, that would be intuitive thinking from past experiences, or rational thinking based on past evidence. Ah language is losing me. Rather than defending how I normally think, let's just reduce myself as an irrational thinker for the sake of easier discussion.<br>
 <br>
 I am used to view the world as a series of implications. Hence, a substantial reason of why I finally chose this religion is because it has the best accountability explanations. In the past, I watched a lot of theistic-atheistic debates, in which arguments are presented by experts (or I would rather say, people who possess specialized knowledge and/or courage) from each side. One thing I recognize after the debates is that it was all about winning or losing, not understanding. Rather than satisfaction, I often found myself being flabbergasted. However, I still watch the US political debates occasionally, because most of the times they are far more hilarous than Trevor Noah's standup comedy.<br>
 <br>
@@ -48,7 +48,7 @@ The following is from Professor Hawking,<br>
 <br>
 "So although what was prior to the Big Bang is a mystery, everything certainly points to an incredibly clear beginning point. What more would we expect if we wanted evidence of God creating a universe."<br>
 <br>
-"We inevitably need something noncontingent as an explanation. So what term do we use for something that is not contingent, causeless, reasonless, and unexplainable? We call it necesary. Applied to an entity or a being, it is referred to as a Necessary Entity or Being"<br>
+"We inevitably need something noncontingent as an explanation. So what term do we use for something that is not contingent, causeless, reasonless, and unexplainable? We call it necesary. Applied to an entity or a being, it is referred to as a Necessary Entity or Being".<br>
 <br>
 "The Necessary Being or Entity refers to something that has:<br>
 (a) causative necessity: that it is logically required for a first cause argument because explanations have to end somewhere.<br>
@@ -75,7 +75,7 @@ The following is from Professor Hawking,<br>
 <br>
 "Logic, however, is only one piece of the puzzle. People further say that they "need other sources of information" to support the case for God. That is a fair request."<br>
 <br>
-*"The case for a Necessary Entity is equal to--if not stringer than--the other possibilities."*<br>
+*"The case for a Necessary Entity is equal to--if not stronger than--the other possibilities."*<br>
 <br>
 <br>
 I rest my case for the Necessary Entity. Ah, thinking rationally, God does have the most intelligent being, yet the worst lawyer to present His case.
