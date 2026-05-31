@@ -7,7 +7,7 @@ categories: memento
 ---
 
 
-My eyes are apparently tired from crying, and since today should be the beginning of my luteal phase, I can think a little bit more clearly. I stumbled upon a youtube recommendation of a case where someone wrote a book, after collecting evidence for 20 years, about the rational deduction of a Necessary Entity (NE). Before that, I want to provide some personal historical contexts.<br>
+My eyes are apparently tired from crying, and since today should be the beginning of my follicular phase, I can think a little bit more clearly. I stumbled upon a youtube recommendation of a case where someone wrote a book, after collecting evidence for 20 years, about the rational deduction of a Necessary Entity (NE). Before that, I want to provide some personal historical contexts.<br>
 <br>
 I was born Muslim. It was a culture. The rituals were habits I have been accustomized to for years, because Mom would ask me whenever I didn't do the rituals. I began to search as I grow older and live outside my parents' house. Contrary to what I expected, the search led me closer to what was taught instead. There was period when the rituals were soul-less, it was inconvenience. There was also period when the rituals made me feel ashamed, because I became the inconvenience.<br>
 <br>
