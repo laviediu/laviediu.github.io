@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "bargaining with fate"
+title: "rewriting our story"
 date: 2026-06-09
 author: "Maryam Medina"
 categories: memento
