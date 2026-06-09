@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "refusing to feel numb"
-date: 2026-06-09
+date: 2026-06-08
 author: "Maryam Medina"
 categories: memento
 ---

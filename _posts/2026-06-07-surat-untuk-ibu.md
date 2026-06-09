@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Surat untuk Ibu"
-date: 2026-06-08
+date: 2026-06-07
 author: "Maryam Medina"
 categories: letter
 ---
