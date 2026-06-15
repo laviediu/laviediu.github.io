@@ -3,7 +3,7 @@ layout: post
 title: "Letter to My Younger Self (part 2)"
 date: 2026-06-04
 author: "Maryam Medina"
-categories: memento
+categories: letter
 ---
 
 
