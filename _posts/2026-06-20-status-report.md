@@ -20,6 +20,7 @@ Nervous system report after heartbreak:<br>
 <br>
 Nervous system report during interaction:<br>
 1) Something to be considered as happiness and peacefulness<br>
+2) Anxiety and lost of focus due to trauma triggers<br>
 <br>
 Nervous system report before everything:<br>
 1) Business as usual<br>
@@ -48,5 +49,17 @@ Did heartbreak happen before? Yes<br>
 Was it this intense? No<br>
 <br>
 <br>
-Conclusion: it is most likely love, with some margin of errors.
+Conclusion: it is most likely love, with some margin of errors.<br>
+<br>
+<br>
+Historical report from last year
+<br>
+Nervous system during interaction:<br>
+1) Choking sensation<br>
+2) Physical discomfort<br>
+3) Unnecessary amount of fears<br>
+<br>
+Behavior report during interaction:
+1) Communicate like a normal person<br>
+2) Have a normal relationship with God<br>
 
