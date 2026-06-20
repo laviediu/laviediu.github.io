@@ -20,7 +20,7 @@ Nervous system report after heartbreak:<br>
 <br>
 Nervous system report during interaction:<br>
 1) Something to be considered as happiness and peacefulness<br>
-2) Anxiety and lost of focus due to trauma triggers<br>
+2) Anxiety due to trauma triggers<br>
 <br>
 Nervous system report before everything:<br>
 1) Business as usual<br>
