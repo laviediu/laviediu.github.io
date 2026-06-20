@@ -7,7 +7,7 @@ categories: memento
 ---
 
 
-I just turned 26. It doesn't feel different haha. It did feel a bit heavy last year though, turning a quarter of a decade.<br>
+I just turned 26. It doesn't feel different haha. It did feel a bit heavy last year though, turning a quarter of a century.<br>
 <br>
 My life felt like in a reset mode last weekend. I hiked, for only 2 hours, in Nagano area. The scenery was magically breathtaking. We were in a group of 10 people, but I was alone mid-hike. I couldn't catch my breath and my head felt very dizzy. "Your eyes look super weird", she said. I stopped midway and let my friends leave me behind. I was taking one step at a time in the steep course. I was hiking behind a group of foreign tourists, possibly in their thirties. After letting my heart to beat a little slower, yes it was racing, I went after my friends. My energy was refueled and I hiked faster to the top, leaving them behind. On the way up, I reminded myself, "a little bit more, you can endure it" while uttering some dhikr repeatedly. The hike reconnected my soul to where it belongs, I felt closer to God. It was the best feeling I have had in a while, a peace I was looking for the whole time. It could even be the highlight of 2025.<br>
 <br>
