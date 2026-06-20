@@ -17,9 +17,12 @@ Nervous system report after heartbreak:<br>
 3) First anxiety attack<br>
 4) Anger appears<br>
 <br>
+Nervous system report after interaction:<br>
+1) Business as usual
+2) Anxiety due to trauma triggers<br>
+<br>
 Nervous system report during interaction:<br>
 1) Something to be considered as happiness and peacefulness<br>
-2) Anxiety due to trauma triggers<br>
 <br>
 Nervous system report before everything:<br>
 1) Business as usual<br>
@@ -42,7 +45,7 @@ Behavior report during interaction:<br>
 <br>
 Behavior report before everything:<br>
 1) "Why is this person everywhere?"<br>
-2) Have a normal relationship with God<br>
+2) Have a close relationship with God<br>
 3) Work a lot<br>
 <br>
 Did heartbreak happen before? Yes.<br>
@@ -53,9 +56,11 @@ Conclusion: it is most likely love, with some margin of errors.<br>
 <br>
 Historical report from 2025, after therapy<br>
 <br>
+Nervous system report after interaction:<br>
+1) Unnecessary fears<br>
+<br>
 Nervous system report during interaction:<br>
 1) Business as usual<br>
-2) Unnecessary fears<br>
 <br>
 Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
@@ -66,10 +71,14 @@ Behavior report during interaction:<br>
 <br>
 Historical report from 2024, before therapy<br>
 <br>
-Nervous system report during interaction:<br>
+Nervous system report after interaction:<br>
 1) Choking sensation<br>
 2) Physical discomfort<br>
 3) Unnecessary amount of fears<br>
+<br>
+Nervous system report during interaction:<br>
+1) Business as usual
+2) Mild discomfort
 <br>
 Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
@@ -78,6 +87,9 @@ Behavior report during interaction:<br>
 <br>
 <br>
 Historical report from 2020, before therapy<br>
+<br>
+Nervous system report during interaction:<br>
+1) Unnecessary amount of happiness<br>
 <br>
 Nervous system report after interaction:<br>
 1) Choking sensation<br>
