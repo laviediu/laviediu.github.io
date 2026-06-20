@@ -11,7 +11,6 @@ Did I really fall in love?<br>
 Is my definition of love correct?<br>
 Is it just biological changes?<br>
 <br>
-<br>
 Nervous system report after heartbreak:<br>
 1) Physical chest discomfort for more than 3 weeks, the heaviness disappears at the end of week 4<br>
 2) Hormonal changes leading to earlier period<br>
@@ -25,7 +24,6 @@ Nervous system report during interaction:<br>
 Nervous system report before everything:<br>
 1) Business as usual<br>
 <br>
-<br>
 Behavior report after heartbreak:<br>
 1) Love confession, unregrettable but shameful<br>
 2) Write too many essays and unsent letters for two weeks straight<br>
@@ -34,7 +32,7 @@ Behavior report after heartbreak:<br>
 5) Go to the sea twice in a period of ~2 weeks<br>
 6) Try to function and act like everything is under control<br>
 7) Have a closer relationship with God<br>
-8) Work a lot
+8) Work a lot<br>
 <br>
 Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
@@ -45,7 +43,7 @@ Behavior report during interaction:<br>
 Behavior report before everything:<br>
 1) "Why is this person everywhere?"<br>
 2) Have a normal relationship with God<br>
-3) Work a lot
+3) Work a lot<br>
 <br>
 Did heartbreak happen before? Yes.<br>
 Was it this intense? No.<br>
@@ -53,7 +51,18 @@ Was it this intense? No.<br>
 Conclusion: it is most likely love, with some margin of errors.<br>
 <br>
 <br>
-Historical report from 2024 before therapy
+Historical report from 2025, after therapy<br>
+<br>
+Nervous system report during interaction:<br>
+1) Business as usual<br>
+<br>
+Behavior report during interaction:<br>
+1) Communicate like a normal person<br>
+2) Mild annoyance, "why is this person still here?"<br>
+3) Have a normal relationship with God<br>
+<br>
+<br>
+Historical report from 2024, before therapy<br>
 <br>
 Nervous system report during interaction:<br>
 1) Choking sensation<br>
