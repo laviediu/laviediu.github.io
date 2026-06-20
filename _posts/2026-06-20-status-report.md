@@ -55,6 +55,7 @@ Historical report from 2025, after therapy<br>
 <br>
 Nervous system report during interaction:<br>
 1) Business as usual<br>
+2) Unnecessary fears<br>
 <br>
 Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
