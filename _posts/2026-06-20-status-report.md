@@ -75,4 +75,10 @@ Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
 2) Have a normal relationship with God<br>
 3) Work a lot<br>
-
+<br>
+<br>
+Historical report from 2020, before therapy<br>
+<br>
+Nervous system report after interaction:<br>
+1) Choking sensation<br>
+2) Physical discomfort<br>
