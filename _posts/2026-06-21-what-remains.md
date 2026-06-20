@@ -1,0 +1,14 @@
+---
+layout: post
+title: "what remains"
+date: 2026-06-20
+author: "Maryam Medina"
+categories: memento
+---
+
+
+It was raining. I went to the lab for the last synthesis and sample packing before I leave Japan. I haven't prepared anything for my travel, and I need to go tomorrow morning. I just want to sleep and do nothing. And yet, I have a conference and a research visit. Can't a reasonable woman have a normal heartbreak, please? I guess I already processed everything through my essays and unsent letters. I can't wait to go back home in September! Ah, my paper is rejected. Two rejections in a month, personally and professionally, what a great year. I think I should visit Jeju in the weekend, or maybe a beautiful beach near Seoul. I am not that excited for anything, except that I will probably have a better sleep while I am there. Oh God, the timing of one of the most significant events in my life is ridiculous! I should have processed this heartbreak in utter silence, without any responsibilities. And yet, probably, if that's the case, it would be more harmful for my wellbeing.<br>
+<br>
+This is good, I don't write to anyone anymore, the writing is flat, my chest is not heavy anymore, I occasionally ask myself whether I truly love someone, I still wish him well though. My life returns back to normal, my nervous system is quieter. I still can't believe that I experienced anxiety attack and exploding anger. That was super weird. I never really had a significant emotional wave in my life before this heartbreak. My last heartbreak only lasted about a week, the longing lasted for years though. I wonder how long it will take for a mutual love. Yeah, let's not hope to meet anyone before turning thirty. I will probably buy my grandma's house, visit my sister in Finland, see the aurora, finish books I haven't finished, (hopefully) get my PhD, apply for research jobs, occasionally hike Japanese mountains with Zahrah, listen to Alya's podcast session about her crush with Karin. I should probably try to solo travel in Thailand though, it seems like an interesting country. Let's see, Mecca and Medina is good for me spiritually, Istanbul is also interesting, but aurora in Finland is interesting too. Let me hope that the JSPS fellowship application is going well, or perhaps I should continue working in the startup where I work. The job is not that stressful, but probably would be more stressful when I truly work there. Hmm, NIMS is an interesting choice too, but I don't quite know the career advancement in research institution. I want to avoid working in academia, I guess that's a last resort. The JSPS fellowship announcement is in September, which means if I am rejected for the third time, at least it hurts less and I will be home with mom. Well, at least I will eat Soto.<br>
+<br>
+Look at that, I am already returning as my normal self. Ah, I need to sleep.
