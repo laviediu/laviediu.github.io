@@ -34,32 +34,33 @@ Behavior report after heartbreak:<br>
 5) Go to the sea twice in a period of ~2 weeks<br>
 6) Try to function and act like everything is under control<br>
 7) Have a closer relationship with God<br>
+8) Work a lot
 <br>
 Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
 2) Unnecessary imaginations<br>
-3) Have a normal relationship with God<br>
+3) Have a close relationship with God<br>
+4) Work a lot<br>
 <br>
 Behavior report before everything:<br>
 1) "Why is this person everywhere?"<br>
 2) Have a normal relationship with God<br>
+3) Work a lot
 <br>
-<br>
-Did heartbreak happen before? Yes<br>
-Was it this intense? No<br>
-<br>
+Did heartbreak happen before? Yes.<br>
+Was it this intense? No.<br>
 <br>
 Conclusion: it is most likely love, with some margin of errors.<br>
 <br>
 <br>
-Historical report from last year
+Historical report from 2024 before therapy
 <br>
-Nervous system during interaction:<br>
+Nervous system report during interaction:<br>
 1) Choking sensation<br>
 2) Physical discomfort<br>
 3) Unnecessary amount of fears<br>
 <br>
-Behavior report during interaction:
+Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
 2) Have a normal relationship with God<br>
 
