@@ -60,6 +60,7 @@ Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
 2) Mild annoyance, "why is this person still here?"<br>
 3) Have a normal relationship with God<br>
+4) Work a lot<br>
 <br>
 <br>
 Historical report from 2024, before therapy<br>
@@ -72,4 +73,5 @@ Nervous system report during interaction:<br>
 Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
 2) Have a normal relationship with God<br>
+3) Work a lot<br>
 
