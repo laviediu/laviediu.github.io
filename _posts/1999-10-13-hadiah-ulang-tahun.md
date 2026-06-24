@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "hadiah ulang tahun"
-date: 2026-06-03
+date: 1999-10-13
 author: "Maryam Medina"
 categories: poem
 ---
