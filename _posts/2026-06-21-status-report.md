@@ -12,9 +12,10 @@ Did therapy and trauma-healing efforts help?<br>
 <br>
 Nervous system report, after heartbreak:<br>
 1) Physical chest discomfort for more than 3 weeks, the heaviness disappears at the end of week 4<br>
-2) Hormonal changes leading to earlier period<br>
-3) First anxiety attack<br>
-4) Unnecessary amount of anger<br>
+2) Occasional chest discomfort after week 4<br>
+3) Hormonal changes leading to earlier period<br>
+4) First anxiety attack<br>
+5) Unnecessary amount of anger<br>
 Nervous system report after interaction:<br>
 1) Business as usual<br>
 2) Anxiety due to trauma triggers<br>
@@ -32,10 +33,13 @@ Behavior report, after heartbreak:<br>
 6) Try to function and act like everything is under control<br>
 7) Have a closer relationship with God<br>
 8) Work a lot<br>
+9) Occasional cries after week four<br>
+10) Journaling more<br>
 Behavior report overall, before heartbreak:<br>
 1) Unnecessary imaginations<br>
 2) Have a close relationship with God<br>
 3) Work a lot<br>
+4) Occasional journaling<br>
 Behavior report during interaction:<br>
 1) Communicate like a normal person<br>
 Behavior report before everything:<br>
