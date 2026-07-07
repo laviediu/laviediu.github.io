@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "a different kind of intelligence"
-date: 2026-07-07
+date: 2026-07-08
 author: "Maryam Medina"
 categories: memento
 ---
