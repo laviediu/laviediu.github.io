@@ -1,0 +1,18 @@
+---
+layout: post
+title: "freedom of choice"
+date: 2026-07-09
+author: "Maryam Medina"
+categories: memento
+---
+
+
+"I don't know when I will meet you again, but it is nice to meet you", I said to him. Today is my last day working as a visiting researcher in another lab. The lab culture was totally different, it makes me grateful for what I have. I was the only girl in the office, and the boys were 23-ish undergraduate students. Since I can understand Korean very well, I unintentionally listened to their conversations. It is a whole different world, haha.<br>
+<br>
+"Will you explore Seoul tomorrow?", he asked. "I am not sure, I have explored a lot of places in Seoul", I replied, while reckoning the work trip I had last year. I went to museums, palaces, the Hanok village, and Namsan tower. I enjoyed tteokbokki, jjukkumi, bulgogi, samgyetang, Korean barbeque, jjajangmyeon, and Korean fried chicken. I do want to hike a mountain, since Seoul has a lot of *easy* hike. However, the weather has been rainy lately so I would probably work on my paper tomorrow.<br>
+<br>
+I have traveled to various different places for work ever since I entered graduate school. New places don't excite me anymore, they don't feel special anymore. I find cityscape to be boring, although natural landscape feels emotionally closer to home. I realize that meeting new people is much more interesting at times. I like having conversations with strangers as much as I enjoy strolling along a beach. I wish I could be more courageous to strike a conversation though. I met this young man in Jakarta, while I was recording my ordered *kerak telor* being cooked. He wanted to order one and was struggling to communicate in Bahasa. I helped him, and we had a conversation about his gap year. It was my first time discovering how pleasant it felt to have a meaningful conversation with strangers. "I wish I could be as brave as you", I said. He replied, "I think for you, as a woman, it is much harder because some places are not safe enough to solo travel". He does have a point. I often get annoyed by Mom's texts during my travels because she is such an over-protective mom, which is fair since I am her only child.<br>
+<br>
+Mom has hundreds of people in her contacts. She is such a *Lorelai Gilmore* too. I am so honored to become her daughter! I didn't understand how someone could be easily drawn to other people, but now I do. "The job doesn't pay much, but I love helping sick people, and I get to talk with the elderly", she explained. She worked as a part-time helper in the community health center. I could see it in her eyes, how happy she was. The more I grow older, the more I find Mom to be a *Wonder Woman* I hope I will become one day. While I have my own *calling*, I have had a period considering whether I should apply for a volunteering program in African or Middle Eastern countries. It is still one of my dreams though, I wish I could do it someday, when life takes an unexpected turn.<br>
+<br>
+I think it was last year, I came to realize that I can choose to do anything and go anywhere I want. The sense of freedom is so huge that I wish I could try a lot of things in the short time I have in this world. Recently, I chose to open my heart to someone and to be loved, it doesn't have to be permanent to be true. The path leads to a self-discovery and growth. I wonder what path I would choose next. Should I try a volunteering program in Japan or Indonesia during the winter break? Or perhaps I should do a temporary job somewhere exotic while having a short vacation? It is unbelievable how much doors are available out there, once I shift my perspectives. Right, of course, I should get a real job too.
