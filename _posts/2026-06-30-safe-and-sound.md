@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "safe and sound"
-date: 1999-10-13
+date: 2026-06-30
 author: "Maryam Medina"
 categories: memento
 ---

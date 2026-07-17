@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "strong wind"
-date: 1999-10-13
+date: 2026-05-05
 author: "Maryam Medina"
 categories: memento
 ---
