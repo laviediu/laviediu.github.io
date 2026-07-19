@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Letter for The Future Mr. Right"
-date: 2026-07-17
+date: 1999-10-13
 author: "Maryam Medina"
 categories: letter
 ---
