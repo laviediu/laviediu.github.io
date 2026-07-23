@@ -29,3 +29,8 @@ Because it feels like torture.<br>
 *I am not stupid. I know that this is good for me, but oh dear God.*<br>
 <br>
 AAAAAAAAAAAAAAHHHHHHHHHHHHHHHHHHHHHHH<br>
+<br>
+Dear God, let me just cite Taylor's *I Can Do It With a Broken Heart*.<br>
+Let me hate him just for today.<br>
+<br>
+AAAAAAAAAAAAAAHHHHHHHHHHHHHHHHHHHHHHH
