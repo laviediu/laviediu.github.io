@@ -27,7 +27,7 @@ The world has asked a lot from you, hasn't it? You are very strong for standing 
 <br>
 I should have talked to you about it more, but I hope you do not keep your longing by yourself. I hope you can talk to your friends the way you talked about it with me. Of course, I would want to be there for you too.<br>
 <br>
-I love you, choose you, believe in you. I respect your decision, but you can not tell me what to do. I am my own person.<br>
+I love you, choose you, believe in you. I respect your decision, but you can not tell me what to do. I am my own person. I am also wonderfully stubborn. Do not ever worry about your influence over me, you should worry about my influence over you.<br>
 <br>
 Now, I am still disappointed that you let the man I love become small, when he is not, at all. *Do not do that to my man. My man does not make himself small.*<br>
 <br>
