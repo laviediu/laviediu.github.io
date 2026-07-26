@@ -1,13 +1,13 @@
 ---
 layout: post
-title: "work work work"
+title: "this is your captain speaking"
 date: 2026-07-26
 author: "Maryam Medina"
 categories: letter
 ---
 
 
-Hi! Come on now, stop the crying, I command you!<br>
+Hi, this is your captain speaking! Come on now, stop the crying!<br>
 I am the commander now, let's keep the love cell in a locked prison, because she keeps distracting our system.<br>
 <br>
 As the original commander of the ship, I command all the cells to focus on the following things below.<br>
