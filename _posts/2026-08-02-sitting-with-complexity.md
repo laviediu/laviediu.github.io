@@ -25,7 +25,7 @@ Perhaps because Dad always flew from the scene whenever conflicts happened, or w
 <br>
 It has been a very long journey from feeling like I should not exist in this world, feeling like a broken person, feeling like I broke someone I loved, to finally forgive my own self and move forward.<br>
 <br>
-Ah I need to see my therapist again at the end of this year. Also, probably a medical check-up this month. I think something is weird with my heart, I had this one episode that could be a heart attack but I hope it wasn't. The pain that I often had was typically just a shortness of breath, but there was one episode where the pain went further to other parts of my body.<br>
+Ah I need to see my therapist again at the end of this year. Also, probably a medical check-up this month. I think something is weird with my heart, I had this one episode that could be a heart attack but I hope it wasn't. The symptoms that I often have are typically just a shortness of breath and pressure on the left chest, but there was one episode where the pain went further to other parts of my body, which is quite scary. I guess the additional chest heaviness from heartbreak did something to the original symptoms that I have.<br>
 <br>
 I will end this heavy piece with good memories here. I recommended two of my good friends for an internship at the company where I used to work!!! I am very happy for them because I know how much they need it, I hope they get the position. Also, my friends and I went to a startup exhibition. We met this CEO who just launched his startup last year, with a very clever solution of offering heavy machinery part repairs through additive manufacturing process. We ended the day with Hainan chicken and soft-shelled crabs!<br>
 <br>
