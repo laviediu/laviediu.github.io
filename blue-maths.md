@@ -4,6 +4,9 @@ title: Blue Maths
 author: "iu marimo"
 ---
 
+[surveyor miss K](https://laviediu.github.io/poem/1999/10/13/miss-k.html)
+<br>
+<br>
 [biru](https://laviediu.github.io/poem/1999/10/13/biru.html)
 <br>
 <br>
