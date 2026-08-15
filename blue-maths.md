@@ -7,7 +7,7 @@ author: "iu marimo"
 [biru](https://laviediu.github.io/poem/1999/10/13/biru.html)
 <br>
 <br>
-[tokyo](https://laviediu.github.io/prose/1999/10/13/tokyo.html)
+[Tokyo](https://laviediu.github.io/prose/1999/10/13/tokyo.html)
 <br>
 <br>
 [le coup de foudre](https://laviediu.github.io/poem/1999/10/13/le-coup-de-foudre.html)
