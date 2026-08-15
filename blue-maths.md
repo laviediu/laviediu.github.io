@@ -31,6 +31,6 @@ author: "iu marimo"
 [Hibiscus](https://laviediu.github.io/prose/1999/10/13/hibiscus.html)
 <br>
 <br>
-[The Epilogue](https://laviediu.github.io/prose/1999/10/13/the-epilogue.html)
+[The Epilogue](https://laviediu.github.io/letter/1999/10/13/the-epilogue.html)
 <br>
 <br>

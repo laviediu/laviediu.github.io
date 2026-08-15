@@ -3,7 +3,7 @@ layout: post
 title: "The Epilogue"
 date: 1999-10-13
 author: "iu marimo"
-categories: prose
+categories: letter
 ---
 
 Evening, ma'am. I began writing again. It was an act to confront myself, to face the hard things after our conversation.<br>
