@@ -1,9 +1,8 @@
 ---
 layout: post
-title: blue maths
+title: Blue Maths
 author: "iu marimo"
 ---
-
 
 [biru](https://laviediu.github.io/poem/1999/10/13/biru.html)
 <br>
