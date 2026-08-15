@@ -2,7 +2,7 @@
 layout: post
 title: "admiral black star"
 date: 1999-10-13
-author: "Maryam Medina"
+author: "iu marimo"
 categories: poem
 ---
 
@@ -35,10 +35,7 @@ pours warmth.<br>
 <br>
 I bathe in the snow of black star crystals, <br>
 the remnant of apocalypse.<br>
-Quirky, <br>
-magical, <br>
-weird, <br>
-free <br>
+Quirky, magical, weird, free <br>
 like showering magnolia petals on a windy instance.<br>
 <br>
 Is this <br>

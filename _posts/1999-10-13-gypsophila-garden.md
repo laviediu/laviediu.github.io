@@ -2,7 +2,7 @@
 layout: post
 title: "gypsophila garden"
 date: 1999-10-13
-author: "Maryam Medina"
+author: "iu marimo"
 categories: poem
 ---
 
