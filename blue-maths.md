@@ -13,6 +13,9 @@ author: "iu marimo"
 [language](https://laviediu.github.io/prose/1999/10/13/language.html)
 <br>
 <br>
+[God](https://laviediu.github.io/poem/1999/10/13/god.html)
+<br>
+<br>
 [Tokyo](https://laviediu.github.io/prose/1999/10/13/tokyo.html)
 <br>
 <br>
