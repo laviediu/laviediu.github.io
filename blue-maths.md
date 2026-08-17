@@ -22,6 +22,9 @@ author: "iu marimo"
 [pulang](https://laviediu.github.io/poem/1999/10/13/pulang.html)
 <br>
 <br>
+[safe and sound](https://laviediu.github.io/poem/1999/10/13/safe-and-sound.html)
+<br>
+<br>
 [companion](https://laviediu.github.io/prose/1999/10/13/companion.html)
 <br>
 <br>
