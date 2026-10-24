@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Strong Wind"
+date: 2026-10-13
+author: "laviediu"
+categories: memento
+---
+
+
+I wish you meet someone who paints the life you want to sketch.<br>
+I wish you warmth in the winter, cold breeze in the summer.<br>
+I wish you see yourself the way I see you.<br>
+<br>
+Thank you for showing me what kind of person I should let enter the castle.<br>
+Thank you for leaving the knights :)
