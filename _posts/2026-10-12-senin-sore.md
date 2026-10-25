@@ -11,7 +11,7 @@ Bagaimana mungkin ia berlagak tenang<br>
 Ia nampak gugup dan malu-malu<br>
 Ia tersenyum ketika kupandang<br>
 <br>
-Bagaimana mungkin aku lupa<be>
+Bagaimana mungkin aku lupa<br>
 Ia membuatku tertawa<br>
 Ia mengajakku berdansa<br>
 <br>
