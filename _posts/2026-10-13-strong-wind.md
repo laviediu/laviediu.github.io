@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Strong Wind"
-date: 2026-10-13
+date: 2025-06-29
 author: "laviediu"
 categories: memento
 ---
